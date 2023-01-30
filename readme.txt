@@ -9,3 +9,5 @@ Und zu dem Strand, dem weiten, wogenblauen,
 Werden wir still und langsam niedersteigen,
 Stumm werden wir unds in die Augen schauen,
 Und auf uns sinkt des Glueckes stummes Schweigen.
+
+  - John Henry Mackay
