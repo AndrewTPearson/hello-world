@@ -11,3 +11,5 @@ Stumm werden wir unds in die Augen schauen,
 Und auf uns sinkt des Glueckes stummes Schweigen.
 
   - John Henry Mackay
+
+(Later set to words by R. Strauss)
